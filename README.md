@@ -2,7 +2,7 @@
 
 ## 🧑 About me:
 
-A **product designer** currently working at `Paytm Insider` who is keen on **illustrations**, **animations** and obviously **user experience design**. Who has sudden urges to **develop random web applications**. You can learn more about me at [my website 📱](https://samarthnayyar.com).
+A design enthusiast with a love for building products, with random ventures into illustration, development and animation. Currently learning something new everday at `University of Texas at Austin`. Previously at PAYTM `INSIDER`, `MAKEMYTRIP`, `GOIBIBO and AIRTEL PAYMENTS BANK`. You can learn more about me at [my website 📱](https://samarthnayyar.com).
 
 ## 📖 My Story:
 
